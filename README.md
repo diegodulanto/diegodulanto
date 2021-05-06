@@ -1,0 +1,3 @@
+- 👋 Hello there! My name is Diego Dulanto and I'm currently studying psychology at the University of South Florida!
+- 👀 My research interests include mental health disparities in minority communities and applicable interventions to reduce them.
+- 📫 You can reach me by email at ddulanto@usf.edu
